@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Savonia Constuction Engineering student.
+Started in 2020.
+Just here to explore.
